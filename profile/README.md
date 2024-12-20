@@ -6,7 +6,7 @@
 
 <a href="https://stream4u.fun/en/movie/762509/mufasa-the-lion-king">➤ ►🌍📺📱👉 Mufasa: The Lion King 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎</a>
 
-<a href="https://stream4u.fun/en/movie/762509/mufasa-the-lion-king" rel="nofollow"><img src="https://imgc.allpostersimages.com/img/posters/sonic-the-hedgehog-3-shadow-motorcycle-one-sheet_u-l-q1t20zw0.jpg" alt="" style="max-width: 100%;"></a></p>
+<a href="https://stream4u.fun/en/movie/762509/mufasa-the-lion-king" rel="nofollow"><img src="https://imgc.allpostersimages.com/img/posters/disney-mufasa-the-lion-king-one-sheet_u-l-fagtxm0.jpg" alt="" style="max-width: 100%;"></a></p>
 
 𝙸𝙵 𝚈𝙾𝚄’𝚁𝙴 𝙴𝚇𝙲𝙸𝚃𝙴𝙳 𝙰𝙱𝙾𝚄𝚃 𝚂𝙴𝙴𝙸𝙽𝙶 𝚂𝙷𝙰𝙳𝙾𝚆’𝚂 𝚃𝙷𝚁𝙸𝙻𝙻𝙸𝙽𝙶 𝙳𝙴𝙱𝚄𝚃, 𝙺𝙴𝙴𝙿 𝚁𝙴𝙰𝙳𝙸𝙽𝙶 𝙱𝙴𝙻𝙾𝚆 𝚃𝙾 𝙵𝙸𝙽𝙳 𝙾𝚄𝚃 𝙷𝙾𝚆 𝚈𝙾𝚄 𝙲𝙰𝙽 𝚆𝙰𝚃𝙲𝙷 𝚂𝙾𝙽𝙸𝙲 𝚃𝙷𝙴 𝙷𝙴𝙳𝙶𝙴𝙷𝙾𝙶 𝟹!
 
